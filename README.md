@@ -2,7 +2,7 @@
 
 Ik y'all lazy asf bruh
 
-![image](https://github.com/user-attachments/assets/47387d6d-bccf-49ca-b5f4-b8f57442b06f)
+![image](https://github.com/user-attachments/assets/ad4e57b3-36ed-4553-b15d-649990014fdc)
 
 ---
 - [UU ITE No. 11 2008](https://github.com/aurixei/Cyber-Law/blob/main/UU%20Nomor%2011%20Tahun%202008.pdf)
